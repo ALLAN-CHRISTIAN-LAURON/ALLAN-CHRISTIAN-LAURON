@@ -82,6 +82,20 @@
   <img src="https://i.imgur.com/LyHic3i.gif" width="100%" height="10px"/>
 </p>
 
+# 💻 My Featured YouTube Musics
+
+[![BALIKAN MULI LYRIC VIDEO (FIL102 eko awit presents)](https://ytcards.demolab.com/?id=C5HwgYaEfRs&title=BALIKAN+MULI+LYRIC+VIDEO+(FIL102+eko+awit+presents)&lang=en&background_color=%230d1117&title_color=%23ffffff&stats_color=%23dedede&max_title_lines=1&width=250&border_radius=5 "BALIKAN MULI LYRIC VIDEO (FIL102 eko awit presents)")](https://youtu.be/C5HwgYaEfRs?si=EOySoKySzFY5_Zio)
+[![Felix - Big S Official lyric video (Prod by: GC BEATS)](https://ytcards.demolab.com/?id=XONo_uCYB3o&title=Felix+-+Big+S+Official+lyric+video+(Prod+by:+GC+BEATS)&lang=en&background_color=%230d1117&title_color=%23ffffff&stats_color=%23dedede&max_title_lines=1&width=250&border_radius=5 "Felix - Big S Official lyric video (Prod by: GC BEATS)")](https://youtu.be/XONo_uCYB3o?si=tskBZk41lwGMjgYH)
+[![Type - Felix Official Music video (prod by: mengson beats)](https://ytcards.demolab.com/?id=_fHVdvo9QGk&title=Type+-+Felix+Official+Music+video+(prod+by:+mengson+beats)&lang=en&background_color=%230d1117&title_color=%23ffffff&stats_color=%23dedede&max_title_lines=1&width=250&border_radius=5 "Type - Felix Official Music video (prod by: mengson beats)")](https://youtu.be/_fHVdvo9QGk?si=pt8Dfr5Ya2ztyZNI)
+[![LMM - Felix Official audio](https://ytcards.demolab.com/?id=BIhiov1vihM&title=LMM+-+Felix+Official+audio&lang=en&background_color=%230d1117&title_color=%23ffffff&stats_color=%23dedede&max_title_lines=1&width=250&border_radius=5 "LMM - Felix Official audio")](https://youtu.be/BIhiov1vihM?si=LkjsWQjpXbv8F7p9)
+[![REGALO NI SANTA - FELIX](https://ytcards.demolab.com/?id=edRBR_J9fGg&title=REGALO+NI+SANTA+-+FELIX&lang=en&background_color=%230d1117&title_color=%23ffffff&stats_color=%23dedede&max_title_lines=1&width=250&border_radius=5 "REGALO NI SANTA - FELIX")](https://youtu.be/edRBR_J9fGg?si=JVRnrfq8REd6l7MH)
+[![L D C - Felix (Prod by: wavytrbl)](https://ytcards.demolab.com/?id=hqseEmQHTB8&title=L+D+C+-+Felix+(Prod+by:+wavytrbl)&lang=en&background_color=%230d1117&title_color=%23ffffff&stats_color=%23dedede&max_title_lines=1&width=250&border_radius=5 "L D C - Felix (Prod by: wavytrbl)")](https://youtu.be/hqseEmQHTB8?si=52gVC0Nz6IW7H_fq)
+
+
+<p align="center">
+  <img src="https://i.imgur.com/LyHic3i.gif" width="100%" height="10px"/>
+</p>
+
 ## Comfort Playlist
 
 <p align="center">
